@@ -5,7 +5,7 @@ GG is coming! She is seriously preparing her Chinese trip.
 - Plan A: find a job and come with labor visa.
 - Plan B: travel trip first then work career.
 
-## How to find a job in China
+## What u need to do
  * If u have a Chinese friend ,ask him/her for help.
  * Talk to those language school in your city, for more information.
  * Try to keep connect with local toastmaster.
